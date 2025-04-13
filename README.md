@@ -4,6 +4,5 @@
 - 💞️ I’m looking to collaborate on github
 - 📫 How to reach me : typh94@live.fr
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: ...
 
  
